@@ -1,0 +1,1 @@
+"Descubra um sistema de e-commerce eficiente e seguro que permite comprar e vender produtos online com facilidade. Explore catálogos de produtos, adicione itens ao carrinho, escolha opções de pagamento seguras e desfrute de uma experiência de compra completa."
